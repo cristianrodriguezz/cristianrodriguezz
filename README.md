@@ -5,6 +5,7 @@
 - Amante de los gatos, la buena morfi y LOL? Sí soy! Apasionado por la tecnología? También... eso es tan único como un bug en el código jajaja. Pero de verdad, estoy entusiasmadísimo por lo que viene.
 - Si también pensás que la pasión por la tecnología merece un toque más de originalidad, ¡conectate conmigo en LinkedIn! Estoy acá para crecer y aprender. ¡Que tengas lindo día! 🚀🐾😺
 
-  ![Ejemplo Gif]([https://ejemplo.com/ejemplo.gif]([https://1.bp.blogspot.com/-6AYOlKIRAns/WYiZ8lGfICI/AAAAAAAABTk/c6fzq1mX274z6P6eqE8oYipgTSllHeJ4ACLcBGAs/s1600/programando.gif)https://1.bp.blogspot.com/-6AYOlKIRAns/WYiZ8lGfICI/AAAAAAAABTk/c6fzq1mX274z6P6eqE8oYipgTSllHeJ4ACLcBGAs/s1600/programando.gif](https://media.giphy.com/media/kELWH7yHTEWlrOrgli/giphy.gif)https://media.giphy.com/media/kELWH7yHTEWlrOrgli/giphy.gif])
+![Ejemplo Gif](https://media.giphy.com/media/kELWH7yHTEWlrOrgli/giphy.gif)
+
 
 
