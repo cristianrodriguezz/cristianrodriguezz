@@ -1,4 +1,4 @@
-
+## Hey, soy Cristian 
  🌱 Acabo de completar mi recorrida como Certified Tech Developer en Digital House.
  🤓 Soy autodidacta y, sí, también soy apasionado por la tecnología. Pero pará, no te escapés, ¡no es el cliché de siempre! 💻🌟
 - Amante de los gatos, la buena morfi y LOL? Sí soy! Apasionado por la tecnología? También... eso es tan único como un bug en el código jajaja. Pero de verdad, estoy entusiasmadísimo por lo que viene.
